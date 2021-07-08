@@ -1,0 +1,1 @@
+Curso está bom, só esse professor que explica corrido.
